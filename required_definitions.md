@@ -1,4 +1,4 @@
-In an effort to increase transparency and consistency amongst its participants, the ATS requires that each of its member organizations clarify how they calculate important, key performance indicators. This is especially important in the area of reporting job outcomes of each member organizations' graduates.
+In an effort to increase transparency and consistency amongst its participants, the ATS requires that each of its member organizations clarify how they calculate important, key performance indicators. This is especially vital in the area of reporting job outcomes of each member organizations' graduates.
 
 Each member of the Association of Technology Schools must publish on a publicly accessible section of their website definitions for the following terms:
 
